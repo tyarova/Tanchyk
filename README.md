@@ -1,2 +1,0 @@
-"# Tanchyk" 
-"# Tanchyk" 
